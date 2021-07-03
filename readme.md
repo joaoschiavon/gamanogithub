@@ -1,0 +1,1 @@
+Por enquanto o curso tem sido muito interessante e cheio de informações pertinentes, ajudando a aprofundar o interesse pela área, ao mesmo tempo que esta disponibilizando o conteúdo necessário.
